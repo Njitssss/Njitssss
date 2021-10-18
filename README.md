@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Njitssss
+- 👀 I’m interested in gaming
+- 🌱 I’m currently studying HBO-ICT
